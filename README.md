@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently working on<br>AI-powered creative tools like Stable Diffusion QR codes and fire evacuation systems 🔥🤖<br><br>I’m looking to collaborate on<br>Open-source projects that fight digital surveillance (FOSS evangelist here! ✊)<br><br>I’m looking for help with<br>Taming TensorFlow beasts and optimizing mobile firmware 🐉📱<br><br>I’m currently learning<br>Flutter/.NET for cross-platform domination 🚀<br><br>Ask me about<br>How we won MAGIC 2.0 overnight with zero sleep 😴💻🏆<br><br>Fun fact<br>I built carbon credit systems for fun (HULT Prize runner-up!) 🌳💸
+I’m currently working on<br>AI-powered creative tools like Stable Diffusion QR codes and fire evacuation systems 🔥🤖<br><br>I’m looking to collaborate on<br>Open-source projects that fight digital surveillance (FOSS evangelist here! ✊)<br><br>I’m looking for help with<br>Taming TensorFlow beasts and optimizing mobile firmware 🐉📱<br><br>I’m currently learning<br>Flutter/.NET for cross-platform domination 🚀<br><br>Ask me about<br>How we won MAGIC 2.0 overnight with zero sleep 😴💻🏆<br><br>Fun fact<br>I built carbon credit systems for fun (HULT Prize runner-up!) 🌳💸 
 
 
 ## 🌐 Socials:
